@@ -1,0 +1,1 @@
+# quantyma-capital
